@@ -13,4 +13,4 @@
 - 💬 Ask me about ... me
 - 📫 How to reach me: ... [personal web](https://fiqriardiansyah-dev.web.app/)
 - 😄 Pronouns: ... say 'AAAAA'
-- ⚡ Fun fact: ... currently im not working!
+- ⚡ Fun fact: ... nothing
