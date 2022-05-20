@@ -13,4 +13,4 @@
 - 💬 Ask me about ... me
 - 📫 How to reach me: ... come to my home
 - 😄 Pronouns: ... ef i kiu er i
-- ⚡ Fun fact: ... guest what
+- ⚡ Fun fact: ... guess what
