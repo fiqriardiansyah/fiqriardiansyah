@@ -9,8 +9,8 @@
 - 🔭 I’m currently studyng on ...stmik mikroskil medan
 - 🌱 I’m currently learning ... medan, indonesia
 - 👯 I’m looking to collaborate on ... some project
-- 🤔 I’m looking for help with ... android
+- 🤔 I’m looking for help with ... everything
 - 💬 Ask me about ... me
-- 📫 How to reach me: on progress...
-- 😄 Pronouns: ... say 'AAAAA'
-- ⚡ Fun fact: ... nothing
+- 📫 How to reach me: ... come to my home
+- 😄 Pronouns: ... ef i kiu er i
+- ⚡ Fun fact: ... guest what
