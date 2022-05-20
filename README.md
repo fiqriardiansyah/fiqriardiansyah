@@ -11,6 +11,6 @@
 - 👯 I’m looking to collaborate on ... some project
 - 🤔 I’m looking for help with ... android
 - 💬 Ask me about ... me
-- 📫 How to reach me: ... [personal web](https://fiqriardiansyah-dev.web.app/)
+- 📫 How to reach me: on progress...
 - 😄 Pronouns: ... say 'AAAAA'
 - ⚡ Fun fact: ... nothing
