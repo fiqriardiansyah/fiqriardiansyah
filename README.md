@@ -5,3 +5,4 @@
 ---
 
 ### Hi there, im fiqri ardiansyah 👋
+check out my portfolio ![here](https://fiqri-ardiansyah.vercel.app/)
